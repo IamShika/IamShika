@@ -2,7 +2,7 @@
 - 👀 I’m interested in bot coding and volleyball
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on no
-- 📫 How to reach me : i dunno
+- 📫 How to reach me : Discord : iam._shika, IG : iam._shika
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I'm not good at coding
 
